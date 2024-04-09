@@ -8,6 +8,6 @@ For programming, online marketing, SEO, audits and more
 
 ## 🇫🇮
 
-Myydään ohjelmointia, verkkomarkkinointia, hakukoneoptimointia ja muuta
+Myydään ohjelmointia, verkkomarkkinointia, hakukoneoptimointia, katselmuksia ja muuta
 
 **Ota yhteyttä**: myynti@loitsulafka.fi
